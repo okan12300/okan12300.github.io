@@ -1,1 +1,0 @@
-# okan12300.github.io
